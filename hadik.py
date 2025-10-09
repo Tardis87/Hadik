@@ -1,0 +1,1 @@
+## Komentujem navrh zmeny
